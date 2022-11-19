@@ -1,2 +1,2 @@
 # instagramofficial.blogspot.com
-https://git.io/normalize
+https://git.io/ohdxXWPf
