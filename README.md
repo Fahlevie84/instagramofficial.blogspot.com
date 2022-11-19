@@ -1,2 +1,2 @@
 # instagramofficial.blogspot.com
-https://git.io/ohdxXWPf
+https://sck.io/TJ4oDkdt
